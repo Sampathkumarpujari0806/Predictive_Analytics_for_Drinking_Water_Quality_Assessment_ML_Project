@@ -1,1 +1,1 @@
-If you want to this application, click on link below
+If you want to use this application, click on link below
